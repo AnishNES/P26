@@ -1,0 +1,4 @@
+Preheat oven to 150 C. Grease and line the base and side of a 24 cm springform cake tin.
+Melt butter in a saucepan on a low heat and add the chocolate, stirring to melt. Add the coffee and water mixture and sugar, stirring to dissolve.
+Remove the pan from the heat, stir to combine, and pour into a large mixing bowl. Cool for 5 minutes. Sift the flours and cocoa into the chocolate mixture and stir through. Add the eggs and vanilla and combine with an electric mixer until smooth.
+Pour the mixture into the preapred tin. Bake for 1 1/2 hours, or until the cake is cooked through (this is a very moist cake). The top will be crusty and cracked. If you prefer a smoother top, cut a piece of baking paper the size of the cake top and place it on top of the mixture before baking.
